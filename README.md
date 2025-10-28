@@ -56,7 +56,7 @@ I believe in building technology that **preserves tradition while pushing innova
 ---
 
 ### 📫 Connect
-[🌐 Portfolio](#)  |  [💼 LinkedIn](https://www.linkedin.com/in/praptisanghavi)  |  ✉️ `praptisanghavi@gmail.com`
+[🌐 Portfolio](#)  |  [💼 LinkedIn](https://www.linkedin.com/in/prapti-sanghavi/)  |  ✉️ `praptisanghavi@gmail.com`
 
 ---
 
